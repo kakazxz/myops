@@ -1,3 +1,3 @@
 # myops2020
 
-wait update
+ASSN coming soon
